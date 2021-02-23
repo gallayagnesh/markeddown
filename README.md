@@ -29,7 +29,7 @@
     - Management     
 
 **IMAGE**  
-![github_logo](https://wallpapercave.com/wp/wp2496943.jpg)  
+![github_logo](https://images.opoyi.net/opoyi_D40Xe_rI3.jpg?tr=w-345,q-70,dpr-2)  
 
 
 **LINK**
