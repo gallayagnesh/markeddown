@@ -34,7 +34,7 @@
 
 **LINK**
 
-Github(www.iplt20.com)
+IPL(www.iplt20.com)
 
 **DATA**
 
